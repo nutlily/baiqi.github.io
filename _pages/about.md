@@ -13,7 +13,7 @@ redirect_from:
 | 定制游戏 | 课程贩卖 |
 |--|--|
 | 100~1000元 | 10元 |
-![白起](https://s41.ax1x.com/2026/04/19/pe6OA29.jpg)
+ ![白起](https://s41.ax1x.com/2026/04/19/pe6OA29.jpg)
 
 **目前游戏**![神枪之手](https://s41.ax1x.com/2026/04/19/pe6LoHf.png)
 
